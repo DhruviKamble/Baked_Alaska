@@ -1,0 +1,26 @@
+What are you going to do with the ingredients now?
+How do you make the Baked Alaska?
+🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸
+1. At least 1 day and up to 1 week before serving, assemble the ice cream dome: Transfer all of the ice cream to the refrigerator for 15 minutes to soften. Meanwhile, lightly spray a medium freezer-safe bowl with cooking spray, then line with 2 long sheets of plastic wrap, placed perpendicularly to fully line the bowl with a few inches overhang on each side; press to smooth.
+
+2. Remove the nutty ice cream and scoop it into the prepared bowl; using a rubber spatula or small offset metal spatula, press the ice cream into the bottom of the bowl, smoothing the surface into an even, smooth layer. Sprinkle with 3 tablespoons of chopped chocolate, pressing lightly to adhere, then transfer the bowl to the freezer for 10 minutes to firm up slightly. Remove the bowl and the fruity ice cream flavor from the refrigerator; spread into an even, smooth layer. Sprinkle 5 tablespoons chopped chocolate evenly over the ice cream layer and press lightly to adhere. Transfer the bowl back to the freezer for another 10 minutes. Finally, remove the bowl from the freezer and add the vanilla ice cream. Smooth it over the chopped chocolate into an even, smooth layer. Gently fold the plastic edges over the ice cream to cover. Freeze until completely solid, about 10 hours.
+
+3. Meanwhile, make the cake layer base: Preheat an oven to 350°F. Grease a 9-inch cake pan with butter, and line it with a circle of parchment paper cut to fit the bottom of the pan.
+
+4. In a double boiler, combine the butter and remaining 8 ounces chocolate and cook, stirring occasionally, until just melted. Remove and set aside.
+
+5. In the bowl of a food processor, add the yolks, pistachio flour, and rice flour, and pulse to combine. With the motor running, slowly drizzle in the warm chocolate mixture. Use a rubber spatula to scrape down the sides of the bowl and the blade and pulse a few times more to combine completely. Transfer the mixture to a large bowl, then set aside.
+
+6. In the bowl of an electric mixer fitted with the whisk attachment, beat the 6 egg whites on high speed until medium-stiff peaks begin to form, 2-3 minutes. Add the sugar in 4 batches, whipping well after each addition to make a glossy, soft-peaked meringue.
+
+7. Using a large rubber spatula and working in two batches, fold the meringue into the chocolate mixture, mixing well after each addition. Pour the batter into the prepared cake pan and bake until just set but still quite soft, 35-40 minutes. Remove and let cool completely in the tin before inverting onto a rack and removing the parchment lining. Immediately re-invert the cake onto a heat-resistant serving plate or cake stand so that the flattest part of the cake is back on the bottom. Cover with plastic wrap and set in the refrigerator to firm up for at least a few hours or ideally overnight.
+
+8. A few hours before you are ready to serve, remove the bowl of ice cream from the freezer and the cake from the refrigerator. Unwrap the cake and uncover the top of the ice cream. Using the plastic wrap around the sides, lift the dome of ice cream from the bowl. (If it sticks, dunk the bottom of the bowl in large bowl of hot water for a few seconds to help release.) Place the ice cream dome, centered and flat-side down, atop the cake. Remove the plastic wrap from the dome and transfer the Baked Alaska back to the freezer.
+
+9. Make the meringue topping: In the bowl of a stand mixer fitted with the whisk attachment, add the 4 egg whites; beat on medium speed until the whites begin to turn foamy, 30-60 seconds. Add the 2 tablespoons of sugar, the cream of tartar, and the vanilla seeds and continue beating until silky, soft peaks begin to form, 2-3 minutes. Reduce to medium-low speed and gradually add the rest of the sugar, 2 tablespoons at a time, until the sugar is completely incorporated and the meringue holds glossy, stiff peaks.
+
+10. Immediately remove the Baked Alaska from the freezer. Using a rubber spatula, scoop the meringue evenly over the ice cream in decorative swoops and swirls. If flambéing, gently nestle the half egg shell into the top of the meringue dome. Transfer to the freezer.
+
+11. Half an hour before you are ready to serve, transfer the Baked Alaska to the refrigerator to soften slightly. To serve, use a crème brulée torch to evenly brown the meringue. (If it starts to catch on fire, gently blow out the flame and continue toasting.)
+
+12. To flambé the meringue, in a small pot over low heat, warm the rum for 1-2 minutes (do not boil). Place the Baked Alaska on the table to serve and, using a small metal ladle, carefully pour 2 tablespoons of rum into the eggshell. Use a long match or grill starter to light the rum in the eggshell, then, slowly and carefully ladle more rum into the shell, allowing it to flow down the meringue like a volcano. Once the alcohol has burned off and your guests have been adequately impressed, use a warm knife to slice the Baked Alaska into wedges and serve immediately.
